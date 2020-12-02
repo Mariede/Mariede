@@ -8,6 +8,6 @@ I like music, cycling, running and pc games… some contact sports, bodybuilding
 
 ### Objectives
 
-I am dedicated and focused. Things have been changing a lot and I'm still here! So many awesome coders out there but sometimes I still get proud of myself too. =) Since a while I have decided to Looking for evolving in a new culture, always balancing work and life quality. So... any good opportunities world wide will be appreciated and carefully checked. Finding some nice new foreign friends will be most welcome too.
+I am dedicated and focused. Things have been changing a lot and I'm still here! So many awesome coders out there but sometimes I still get proud of myself too. =) A while ago, I have decided to start looking to evolve in a new culture, always balancing work and life quality. So... any good opportunities world wide will be appreciated and carefully checked. Finding some nice new foreign friends will be most welcome too.
 
 [✨ resume ✨](https://drive.google.com/drive/folders/1h3auIf7comPbymK7a0fTHw5eetRj6oLH)
