@@ -4,7 +4,7 @@ My name is Michel, I live in Brazil. I was born in São Paulo, a city located in
 
 About 10 years ago I moved to a city near São Paulo called Sorocaba, and for the last 8 years until now I am a public servant working as a Systems Analyst for their city hall. Nowadays Sorocaba has nearly 700k inhabitants.
 
-I like music, bike, run and pc games… some contact sports, bodybuilding sometimes. Running is something that a discovered to enjoy a lot, but not long ago. It is also great when I can spend some time watching any good series on Netflix (Breaking Bad, Better call Saul, Fargo, Black Mirror, La Casa de Papel, Merli, Tonari no Totoro, …).
+I like music, cycling, run and pc games… some contact sports, bodybuilding sometimes. Running is something that a discovered to enjoy a lot, but not long ago. It is also great when I can spend some time watching any good series on Netflix (Breaking Bad, Better call Saul, Fargo, Black Mirror, La Casa de Papel, Merli, Tonari no Totoro, …).
 
 ### Objectives
 
