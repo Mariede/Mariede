@@ -6,6 +6,12 @@ About 11 years ago I moved to a city near São Paulo called Sorocaba and for the
 
 I like music, cycling, running and pc games (but sadly I am not having enough time to play with)… running is something that a discovered to enjoy a lot not too long ago. It is also great when I can spend some time watching any good series on Netflix or Disney+. Right now I am studying Italian language. Side note: when possible, I really enjoy to study JavaScript related things!
 
+### Some external works
+
+https://bit.ly/3y8dQFq
+
+https://bit.ly/2UIQQOQ
+
 ### Objectives
 
 I am dedicated and focused. Things have been changing a lot all these years and I'm still onboard and engaged! So many awesome coders out there but I still get proud of myself too. =)
