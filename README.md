@@ -8,9 +8,8 @@ I like music, cycling, running and pc games (but sadly I am not having enough ti
 
 ### Some external works
 
-https://bit.ly/2UIQQOQ
-
-https://bit.ly/3y8dQFq
+  - https://bit.ly/2UIQQOQ
+  - https://bit.ly/3y8dQFq
 
 ### Objectives
 
