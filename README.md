@@ -13,4 +13,4 @@ I like music, cycling, running and pc games (but sadly I am not having enough ti
 
 ### Objectives
 
-I am dedicated and focused. Things have been changing a lot all these years and I'm still engaged! Thank's to so many awesome coders out there. =) if you have any question, want to talk about coding or some work, feel free to contact me by e-mail ok. Regards.
+I am dedicated, detailed and focused. Things have been changing a lot all these years and I'm still engaged! Thank's to so many awesome coders out there. =) if you have any question or want to contact me, feel free to find me by e-mail ok. Best regards, peace.
