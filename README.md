@@ -8,10 +8,6 @@ I like music, cycling, running and pc games… running is something that a disco
 
 Right now I'm finishing some projects and stuff. Soon I'm going to begin some kind of Sabbatical year, maybe get some time in another country, looking for rest and different things.. let's see what happens in coming months =))
 
-### Some works
-
-  - https://bit.ly/3LMx75X
-  - https://bit.ly/3y8dQFq
 
 ### Objectives
 
