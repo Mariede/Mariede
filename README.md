@@ -13,3 +13,5 @@ Since finally I got my "cittadinanza", right now I am studying Italian language 
 I am dedicated, detailed and focused. For me, ideally, coding is like painting and I must have the time to fully finish it and appreciate the results. Things have been changing a lot all these years but I'm still engaged! Thank's to so many awesome coders out there. =)
 
 if you have any question or want to contact me, feel free to find me by e-mail ok. Best regards, peace brothers.
+
+>> Guys, right now I'm not looking for jobs or projects involving Typescript over JavaScript ok, thank's!
