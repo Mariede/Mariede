@@ -18,4 +18,3 @@ I am dedicated, detailed and focused. For me, ideally, coding is like painting a
 
 if you have any question or want to contact me, feel free to find me by e-mail ok. Best regards! Peace brothers.
 
-> Guys, right now I'm not looking for jobs or projects involving Typescript over JavaScript ok, thank's!
