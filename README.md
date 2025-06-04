@@ -1,7 +1,7 @@
 ### Hi there 👋
 ---
 
-My name is Michel, I was born in São Paulo, a city located in southeast of Brazil where I lived most of my life. I'm working with IT for about 20 years, since I finished my university. By the way, I am a qualified Computer Engineer here. I have dual citizenship, brazilian and italian.
+My name is Michel, I was born in São Paulo, a city located in southeast of Brazil where I lived most of my life. I've worked with IT for about 20 years, since I finished my university. By the way, I am a qualified Computer Engineer here. I have dual citizenship, brazilian and italian.
 
 About more than a decade ago I moved to a city near São Paulo called Sorocaba and for many years I worked as a public servant, in the position of Systems Analyst as a permanent employee for their city hall. Sorocaba has nearly 700k inhabitants. Nowadays I've changed my life focus to a more spiritual approach, doing other things for live. I had a good time programming, but now it looks is mostly done for doing that.
 
